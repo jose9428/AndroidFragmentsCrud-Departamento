@@ -1,0 +1,5 @@
+![Captura de pantalla (265)](https://user-images.githubusercontent.com/76067475/119237955-47470780-bb05-11eb-81f9-d1fffaa50781.png)
+![Captura de pantalla (266)](https://user-images.githubusercontent.com/76067475/119237957-4910cb00-bb05-11eb-9f58-ae77b002fee9.png)
+![Captura de pantalla (267)](https://user-images.githubusercontent.com/76067475/119237958-4910cb00-bb05-11eb-983e-f842f0573c7b.png)
+![Captura de pantalla (268)](https://user-images.githubusercontent.com/76067475/119237959-49a96180-bb05-11eb-9bcf-98839e065e6d.png)
+![Captura de pantalla (264)](https://user-images.githubusercontent.com/76067475/119237960-49a96180-bb05-11eb-96a5-5425024e67de.png)
